@@ -1,0 +1,1 @@
+This is the recipe project for the Odin Project. I did this once before but I completely forgot how to do it. So good luck to me I guess. U got this shit.
